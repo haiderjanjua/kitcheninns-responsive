@@ -1,1 +1,0 @@
-# kitcheninns-responsive
